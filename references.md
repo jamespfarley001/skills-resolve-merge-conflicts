@@ -1,0 +1,1 @@
+entering conflicting text
